@@ -1,1 +1,1 @@
-# gaminggak
+# gaminggak.github.io
